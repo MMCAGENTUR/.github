@@ -1,7 +1,9 @@
-# MMCAGENTUR für Digitale Kommunikation GmbH
+# **Unsere Werte & Leitbild**
+## *Connect digitally, engage respectfully*
 
-**Unsere Werte & Leitbild**
-*Connect digitally, engage respectfully*
+Wir entwickeln digitale Plattformen, Kampagnen und Strategien basierend auf Vertrauen, Wertschätzung und Respekt – Werte, die sich Menschen JETZT von Unternehmen erwarten. Das ist unsere Überzeugung als euer Digitalmarketing-Partner - **Respekt ist die treibende Kraft für Erfolg. #respectinside**
+
+Was wir als Digitalagentur bieten, nicht weniger als "Digital Full Service" – Webdesign, Online-Kampagnen, Social Media Marketing, Content Creation und Digital Strategie, alles aus einer Hand und Inhouse, seit 1997! Langjährige Erfahrung und fundiertes Know-how für nachhaltige Qualität und besten Kund:innenservice.
 
 [Agenturvorstellung als Onepager](https://mmcagentur.at/MMC_CorporateFlyer_2024-08-26_1.pdf)
 
